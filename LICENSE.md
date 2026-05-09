@@ -1,4 +1,4 @@
-
+best Scripts for bee swarm simulator is the best bee swarm simulator Script, featuring aimbot and auto-heal. Safe and powerful for all your needs.
 
 
 
